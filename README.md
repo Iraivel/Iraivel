@@ -20,7 +20,7 @@ I'm Iraivel, a data professional with a geophysicist background interpretating d
 
 In 2022 I transitioned to Data Science, pursuing my passion for working with numbers and analyzing data. ❤️
 
-I like the challenge of learning new skills, it could be watching video tutorials or like the old school: reading textbooks. 📖
+I like the challenge of learning new skills, it could be watching video tutorials or going old school and reading textbooks. 📖
 
 Through this platform, I'd like to share my journey in this career path. 🌟
 
